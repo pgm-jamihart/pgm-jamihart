@@ -4,7 +4,7 @@
 
 ### Personal details
 
-- :cake: 23 years old (8/12/1997)
+- :cake: 24 years old (8/12/1997)
 - :house_with_garden: Harmoniestraat 17, 9050, Ledeberg
 - :telephone_receiver: +32 491 55 20 66
 - :email: jamie-lee.hart@hotmail.com
